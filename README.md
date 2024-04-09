@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Blu3Dragon01
 - 👀 I’m interested in Gaming obviously!
-- 🌱 I’m currently learning Video game Design
+- 🌱 I’m currently learning Video Game Design and Development
 - 💞️ I’m looking to collaborate on I have no idea
 - 📫 How to reach me Discord
 - 😄 Pronouns: he/him
